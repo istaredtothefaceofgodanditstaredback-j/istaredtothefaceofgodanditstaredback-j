@@ -11,3 +11,4 @@
 
 - Main Fandoms: [SCP Foundation](https://scp-wiki.wikidot.com/), [8:11](https://goth-6669.itch.io/811), [Furhazard Facility](https://www.roblox.com/games/7341390084/Furhazard-Facility).
 
+![](https://komarev.com/ghpvc/?username=istaredtothefaceofgodanditstaredback-j&color=blueviolet)
