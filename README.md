@@ -1,9 +1,7 @@
 # ⋆ ִֶָ ๋𓂃🎐 ⋆ heylo!!
 ![IMG-8857](https://github.com/user-attachments/assets/5afaa130-b792-4177-af7d-fb6ff28fd68a)
-- You can call me Clef, Isaac, or whatever! I dont mind, I actually love nicknames or names given to me! ^_^
-- Please keep in mind that I am a minor!!
-- I am mostly offtab when i'm alone, please whisper me if you want to interact! I may not see it immediently, but i'll still see it!
-- i love my parental figures!!!!!
+i need to redo this ts sucks ASS
+- i love my dads i hope they dont shoot eachother
 
 ![IMG-0021](https://github.com/user-attachments/assets/bcd2053a-bcab-4968-afab-740e93206afe)
 
