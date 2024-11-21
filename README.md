@@ -9,6 +9,6 @@ i need to redo this ts sucks ASS
 
 - Main Fandoms: [SCP Foundation](https://scp-wiki.wikidot.com/), [8:11](https://goth-6669.itch.io/811), [Furhazard Facility](https://www.roblox.com/games/7341390084/Furhazard-Facility), [F/GO](https://en.wikipedia.org/wiki/Fate/Grand_Order), [EPIC](https://epicthemusical.fandom.com/wiki/EPIC:_The_Musical).
 
-- Main Intrests: [Clovers](https://en.wikipedia.org/wiki/Clover), [Shotguns](https://en.wikipedia.org/wiki/Shotgun).
+- Main Intrests: [Clovers](https://en.wikipedia.org/wiki/Clover), [Shotguns](https://en.wikipedia.org/wiki/Shotgun), EVBOS FUCKING HEADBAND
 
 ![](https://komarev.com/ghpvc/?username=istaredtothefaceofgodanditstaredback-j&color=blueviolet)
