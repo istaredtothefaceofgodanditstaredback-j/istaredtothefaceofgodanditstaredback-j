@@ -1,6 +1,9 @@
 # ⋆ ִֶָ ๋𓂃🎐 ⋆ heylo!!
 ![IMG-8857](https://github.com/user-attachments/assets/5afaa130-b792-4177-af7d-fb6ff28fd68a)
 i need to redo this ts sucks ASS
+
+- $9.99 for a twerking video
+
 - i love my dads i hope they dont shoot eachother
 
 ![IMG-0021](https://github.com/user-attachments/assets/bcd2053a-bcab-4968-afab-740e93206afe)
