@@ -6,6 +6,8 @@ i need to redo this ts sucks ASS
 
 - they shot eachother
 
+- im to lazy to update this go to my rentry lmao https://rentry.co/cstringamajor
+  
 ![IMG-0021](https://github.com/user-attachments/assets/bcd2053a-bcab-4968-afab-740e93206afe)
 
 ![IMG-0023](https://github.com/user-attachments/assets/227030ef-dfa4-4874-98a0-c018541adb7d)
