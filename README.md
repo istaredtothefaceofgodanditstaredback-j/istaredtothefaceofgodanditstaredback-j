@@ -2,11 +2,8 @@
 ![IMG-8857](https://github.com/user-attachments/assets/5afaa130-b792-4177-af7d-fb6ff28fd68a)
 i need to redo this ts sucks ASS
 
-- $9.99 for a twerking video
+- im clef
 
-- they shot eachother
-
-- im to lazy to update this go to my rentry lmao https://rentry.co/cstringamajor
   
 ![IMG-0021](https://github.com/user-attachments/assets/bcd2053a-bcab-4968-afab-740e93206afe)
 
