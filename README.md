@@ -7,9 +7,9 @@
 </p>
 
 
-
-
-
+<p align="center">
+  <img src="https://yokai.crd.co/assets/images/image06.png?v=b4df531c" />
+</p>
 
 
 dni if you goon to dark magician girl btw
